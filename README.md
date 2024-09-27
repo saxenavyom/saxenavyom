@@ -8,6 +8,6 @@
 
 💼 Experience: Finalist in Smart India Hackathon, Graphic Design Intern, and coordinator for several tech events.
 
-📫 How to reach me: Feel free to connect via LinkedIn or email me at vyom.saxena.77@gmail.com.
+📫 How to reach me: Feel free to connect via LinkedIn www.linkedin.com/in/saxenavyom or email me at vyom.saxena.77@gmail.com.
 
 ⚡ Fun Fact: I'm also a state-level karate medalist! 🥋
